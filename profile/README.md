@@ -1,4 +1,4 @@
-# 🎮 Atama For PC [NSP / XCI ROM Available]
+# 🎮 Atama Free Download For PC [NSP / XCI ROM Available]
 
 Use your **psychic powers** to see through the eyes of your enemies and escape a cursed rural Japanese village. ATAMA is a stealth horror game inspired by classics like *Forbidden Siren* and the haunting art of *Junji Ito*.
 
